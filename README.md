@@ -1,5 +1,5 @@
 # 💫 Sobre Mim:
-Sou Gabriel Castro Fernandes, tenho 17 anos, moro na Palhoça-SC, estudo no colégio S SESI SENAI, moro junto com a minha avó na casa dela, junto com dois cachorros, seus nomes são: pepe e nina. 
+Sou Gabriel Castro Fernandes, tenho 18 anos, moro na Palhoça-SC, estudo no colégio SENAI, moro junto com meus pais, junto com minha cachorra, seu nome é: nina. 
 
 
 ## 🌐 Rede Sociais:
